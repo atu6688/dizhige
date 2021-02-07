@@ -8,7 +8,7 @@
 
 ##### :heart:色大大视频:heart:
 ##### :heavy_plus_sign: 备用1 ：https://sedada01.xyz
-##### :heavy_plus_sign: 备用2 ：https://sedada.club
+##### :heavy_plus_sign: 备用2
 
 ##### :heart:咪大大视频:heart:
 ##### :heavy_plus_sign: 备用1 ：https://midada.xyz
